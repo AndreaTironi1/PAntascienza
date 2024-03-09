@@ -6,7 +6,7 @@
 
 # Social
 
-[Facebook] (https://www.facebook.com/profile.php?id=61557071905622)
+[Facebook](https://www.facebook.com/profile.php?id=61557071905622)
 
 # Distributori
 
