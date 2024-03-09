@@ -2,11 +2,12 @@
 
 # Editore
 
-[Themis](https://themiscrime.com/it/edizioni-themis/fuori-collana/item/606-pantascienza)
+[Themis](https://themiscrime.com/it/edizioni-themis/fuori-collana/item/606-pantascienza) [Facebook](https://www.facebook.com/EdizioniThemis) [Linkedin](https://www.linkedin.com/company/edizioni-themis/)
 
 # Social
 
-[Facebook](https://www.facebook.com/profile.php?id=61557071905622)
+[Facebook PAntascienza](https://www.facebook.com/profile.php?id=61557071905622)
+[Facebook PAntascienza](https://www.facebook.com/profile.php?id=61557071905622)
 
 # Distributori
 
