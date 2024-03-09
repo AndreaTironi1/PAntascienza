@@ -3,4 +3,4 @@ https://www.amazon.it/PAntascienza-racconti-pubblica-amministrazione-futuro/dp/8
 
 # Citazioni
 
-Fantascienza.com(https://www.fantascienza.com/29660/pantascienza-la-pubblica-amministrazione-del-futuro)
+(Fantascienza.com)[https://www.fantascienza.com/29660/pantascienza-la-pubblica-amministrazione-del-futuro]
