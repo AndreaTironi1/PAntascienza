@@ -18,6 +18,6 @@
 
 # Citazioni
 
-* [Tantascientificast](https://fantascientificast.com/2024/03/01/pantascienza/)
+* [Fantascientificast](https://fantascientificast.com/2024/03/01/pantascienza/)
 * [Fantascienza.com](https://www.fantascienza.com/29660/pantascienza-la-pubblica-amministrazione-del-futuro)
 * [Blog Francesco Troccoli](https://francescotroccoli.it/pa-come-pantascienza-e-no-non-e-un-refuso/)
