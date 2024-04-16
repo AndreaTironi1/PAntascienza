@@ -14,9 +14,9 @@
 * Monia Guredda [Facebook](https://www.facebook.com/monia.guredda)
 * Massimiliano Malberba [Linkedin](https://www.linkedin.com/in/massimilianomalerba/)
 * Marco Minicangeli [Linkedin](https://www.linkedin.com/in/marco-minicangeli-692ba814a/)
-* Annarita Petrino [Linkedin[(https://www.linkedin.com/in/annarita-petrino-24a38b33/)
+* Annarita Petrino [Linkedin](https://www.linkedin.com/in/annarita-petrino-24a38b33/)
 * Michele Piccolino
-* Francesco Troccoli [Linkedin[(https://www.linkedin.com/in/francescotroccoli/)
+* Francesco Troccoli [Linkedin](https://www.linkedin.com/in/francescotroccoli/)
   
 
 # Editore
