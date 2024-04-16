@@ -22,3 +22,4 @@
 * [Fantascienza.com](https://www.fantascienza.com/29660/pantascienza-la-pubblica-amministrazione-del-futuro)
 * [Blog Francesco Troccoli](https://francescotroccoli.it/pa-come-pantascienza-e-no-non-e-un-refuso/)
 * [FuturaNetwork](https://futuranetwork.eu/interventi-e-interviste/638-4430/pantascienza-15-racconti-sulla-pubblica-amministrazione-del-futuro)
+* [Strategie Amministrative](https://www.strategieamministrative.it/dettaglio-news/20244152139-pantascienza-quando-la-fantascienza-incontra-la-pa/)
