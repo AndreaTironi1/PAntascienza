@@ -7,7 +7,17 @@
 * Andrea Tironi [Linkedin](https://www.linkedin.com/in/andrea-tironi-/)
 * Luigina Sgarro [Linkedin](https://www.linkedin.com/in/luiginasgarro/)
 * Corrado Giustozzi [Linkedin](https://www.linkedin.com/in/nightgaunt/)
-* e molti altri
+* Andrea Franco [Linkedin](https://www.linkedin.com/in/andreafranco1/)
+* Luigi Brasili [Linkedin](https://www.linkedin.com/in/luigi-brasili-37206247/)]
+* Massimo Canducci [Linkedin](https://www.linkedin.com/in/canducci/)
+* Francesca Garello
+* Monia Guredda
+* Massimiliano Malberba [Linkedin](https://www.linkedin.com/in/massimilianomalerba/)
+* Marco Minicangeli [Linkedin](https://www.linkedin.com/in/marco-minicangeli-692ba814a/)
+* Annarita Petrino [Linkedin[(https://www.linkedin.com/in/annarita-petrino-24a38b33/)
+* Michele Piccolino
+* Francesco Troccoli [Linkedin[(https://www.linkedin.com/in/francescotroccoli/)
+  
 
 # Editore
 
