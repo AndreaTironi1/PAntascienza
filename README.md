@@ -10,8 +10,8 @@
 * Andrea Franco [Linkedin](https://www.linkedin.com/in/andreafranco1/)
 * Luigi Brasili [Linkedin](https://www.linkedin.com/in/luigi-brasili-37206247/)]
 * Massimo Canducci [Linkedin](https://www.linkedin.com/in/canducci/)
-* Francesca Garello
-* Monia Guredda
+* Francesca Garello [Facebook](https://www.facebook.com/francesca.garello.1)
+* Monia Guredda [Facebook](https://www.facebook.com/monia.guredda)
 * Massimiliano Malberba [Linkedin](https://www.linkedin.com/in/massimilianomalerba/)
 * Marco Minicangeli [Linkedin](https://www.linkedin.com/in/marco-minicangeli-692ba814a/)
 * Annarita Petrino [Linkedin[(https://www.linkedin.com/in/annarita-petrino-24a38b33/)
