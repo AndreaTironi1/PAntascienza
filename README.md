@@ -1,5 +1,14 @@
 # PAntascienza
 
+# Autori
+
+* Franscesco Grasso [Linkedin](https://www.linkedin.com/in/francesco-grasso-bb168228/)
+* Giovanni Manca [Linkedin](https://www.linkedin.com/in/giovanni-manca-2a454b/)
+* Andrea Tironi [Linkedin](https://www.linkedin.com/in/andrea-tironi-/)
+* Luigina Sgarro [Linkedin](https://www.linkedin.com/in/luiginasgarro/)
+* Corrado Giustozzi [Linkedin](https://www.linkedin.com/in/nightgaunt/)
+* e molti altri
+
 # Editore
 
 [Themis](https://themiscrime.com/it/edizioni-themis/fuori-collana/item/606-pantascienza) ([Facebook](https://www.facebook.com/EdizioniThemis) [Linkedin](https://www.linkedin.com/company/edizioni-themis/))
