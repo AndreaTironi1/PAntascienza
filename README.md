@@ -7,6 +7,7 @@
 # Social
 
 [Facebook](https://www.facebook.com/profile.php?id=61557071905622)
+[Linkedin](https://www.linkedin.com/search/results/all/?keywords=%23pantascienza&origin=GLOBAL_SEARCH_HEADER&sid=-qF)
 
 # Store Online
 
