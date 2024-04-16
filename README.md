@@ -38,11 +38,11 @@
 
 # Articoli
 
-* [Fantascientificast](https://fantascientificast.com/2024/03/01/pantascienza/)
-* [Fantascienza.com](https://www.fantascienza.com/29660/pantascienza-la-pubblica-amministrazione-del-futuro)
-* [Blog Francesco Troccoli](https://francescotroccoli.it/pa-come-pantascienza-e-no-non-e-un-refuso/)
-* [FuturaNetwork](https://futuranetwork.eu/interventi-e-interviste/638-4430/pantascienza-15-racconti-sulla-pubblica-amministrazione-del-futuro)
-* (2024-04-16) [Strategie Amministrative](https://www.strategieamministrative.it/dettaglio-news/20244152139-pantascienza-quando-la-fantascienza-incontra-la-pa/)
+* (2024-03) [Fantascientificast](https://fantascientificast.com/2024/03/01/pantascienza/)
+* (2024-03) [Fantascienza.com](https://www.fantascienza.com/29660/pantascienza-la-pubblica-amministrazione-del-futuro)
+* (2024-03) [Blog Francesco Troccoli](https://francescotroccoli.it/pa-come-pantascienza-e-no-non-e-un-refuso/)
+* (2024-03) [FuturaNetwork](https://futuranetwork.eu/interventi-e-interviste/638-4430/pantascienza-15-racconti-sulla-pubblica-amministrazione-del-futuro)
+* (2024-04) [Strategie Amministrative](https://www.strategieamministrative.it/dettaglio-news/20244152139-pantascienza-quando-la-fantascienza-incontra-la-pa/)
 
 # Eventi
 
