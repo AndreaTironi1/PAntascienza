@@ -46,6 +46,9 @@
 
 # Eventi
 
+* (2024-05) [ForumPA](https://www.forumpa.it/manifestazioni/forum-pa-2024/)
+* (2024-05) [AIF](https://associazioneitalianaformatori.it/premio-filippo-basile/)
+* (2024-05) [Biblioteca Roma](https://www.bibliotechediroma.it/opac/news/pantascienza-15-racconti-sulla-pubblica-amministrazione-del-futuro-a-cura-di-francesco-grasso/34991)
 * (2024-04) Tivoli
 * (2024-03) DeepCon
 
