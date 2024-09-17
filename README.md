@@ -40,7 +40,7 @@
 
 * (2024-06) [Pagina Tre](https://paginatre.it/pantascienza-15-racconti-sulla-pubblica-amministrazione-del-futuro/)
 * (2024-05) [CorCom](https://www.corrierecomunicazioni.it/pa-digitale/pa-digitale-e-fantascienza-la-combo-possibile-spigere-la-trasformazione/)
-* (2024-05) [Agenda Digitale](h[ttps://www.corrierecomunicazioni.it/pa-digitale/pa-digitale-e-fantascienza-la-combo-possibile-spigere-la-trasformazione/](https://www.agendadigitale.eu/cultura-digitale/pantascienza-una-nuova-narrazione-per-illustrare-levoluzione-digitale-della-pa/](https://www.agendadigitale.eu/cultura-digitale/pantascienza-una-nuova-narrazione-per-illustrare-levoluzione-digitale-della-pa/)
+* (2024-05) [Agenda Digitale](https://www.corrierecomunicazioni.it/pa-digitale/pa-digitale-e-fantascienza-la-combo-possibile-spigere-la-trasformazione/](https://www.agendadigitale.eu/cultura-digitale/pantascienza-una-nuova-narrazione-per-illustrare-levoluzione-digitale-della-pa/](https://www.agendadigitale.eu/cultura-digitale/pantascienza-una-nuova-narrazione-per-illustrare-levoluzione-digitale-della-pa/)
 * (2024-05) [ForumPA](https://www.forumpa.it/pa-digitale/non-solo-storytelling-sullia-ecco-dieci-fonti-di-informazione-efficaci-su-intelligenza-artificiale-e-pa/)
 * (2024-04) [Strategie Amministrative](https://www.strategieamministrative.it/dettaglio-news/20244152139-pantascienza-quando-la-fantascienza-incontra-la-pa/)
 * (2024-03) [FuturaNetwork](https://futuranetwork.eu/interventi-e-interviste/638-4430/pantascienza-15-racconti-sulla-pubblica-amministrazione-del-futuro)
